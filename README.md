@@ -1,1 +1,1 @@
-# --034-GE6001-M01
+# Good Start，finish register with my own account
